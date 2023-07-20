@@ -7,4 +7,4 @@
 + always be open minded
 * be receptive to criticism and new or different perspectives
 * be initiative 
-here is a link to my portfolio [campbossrob] (https://campbossrob/github.com/).
+here is a link to my portfolio [campbossrob] (https://campbossrob/github.com/)
